@@ -1,1 +1,1 @@
-# Kino-bot-keraklisi
+# KINO-BOT
